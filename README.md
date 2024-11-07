@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... im not
 - 📫 How to reach me ... you cant
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... frank ocean isnt good
+- ⚡ Fun fact: ... frank ocean is ass same with childish gambino
 
 <!---
 bobby101151453/bobby101151453 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
